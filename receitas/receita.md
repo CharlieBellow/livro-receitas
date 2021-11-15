@@ -24,7 +24,3 @@ _Itálico_
 4. e depois adiciona o chocolate, o bicabornato e por último o fermento, mistura tudo.
 5. coloca o conteúdo do recipiente em uma forma untada e enfarinhada
 6. leva a forma para assar a 180º por 30 min.
-
-
-
-
